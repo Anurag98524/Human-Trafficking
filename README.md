@@ -1,0 +1,2 @@
+# Human-Trafficking
+Human Trafficking is modern day slavery. Two principal causes for trafficking are poverty, which lead to exploitation, and criminality. Generally, agents give them tempting offers of money or having urban lifestyle and then they do trading. As per govt. report, 2700 person trafficked annually from Bihar. In children trafficking cases, parents say that they were not aware about putting their children into hand of human traffickers.
